@@ -71,3 +71,19 @@ traction in each of your life domains.
 when it comes to our time, we
 should stop worrying about outcomes we can’t control and instead focus
 on the inputs we can.
+
+Today, much of our struggle with distraction is a
+struggle with external triggers like `social media`
+
+Removing unhelpful external triggers is a simple step toward
+controlling unwanted distractions
+
+**You’d be amazed how many things become
+irrelevant when you give them a little time to
+breathe.**
+
+If we are going to spend our time in a meeting, we
+must make sure that we are present, both in body
+and mind.
+
+“Less distraction; more time to focus,”

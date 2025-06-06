@@ -87,3 +87,11 @@ must make sure that we are present, both in body
 and mind.
 
 “Less distraction; more time to focus,”
+
+**Personally, I still use Facebook, but now I use it the way I want
+instead of the way Facebook intended.**
+
+Focus not only requires keeping distraction out; it also necessitates keeping ourselves in
+
+An ef ort pact prevents distraction by making
+unwanted behaviors more dif icult to do.

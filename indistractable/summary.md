@@ -95,3 +95,12 @@ Focus not only requires keeping distraction out; it also necessitates keeping ou
 
 An ef ort pact prevents distraction by making
 unwanted behaviors more dif icult to do.
+
+Our perception of who we are changes what we
+do.
+
+**By thinking of yourself as indistractable,
+you empower yourself through your new identity.**
+
+Though conventional wisdom says our beliefs
+shape our behaviors, the opposite is also true.
